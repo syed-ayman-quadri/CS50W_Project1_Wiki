@@ -1,0 +1,1 @@
+Macs are the best. Windows is bad.
